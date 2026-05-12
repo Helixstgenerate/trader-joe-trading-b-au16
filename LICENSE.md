@@ -1,4 +1,4 @@
-# 
+# professional trader joe trading bot Tool | DEX-arbitrage + rug-pull-detection offers the most advanced trader joe trading bot, with DEX-arbitrage and rug-pull-detection. Ideal for
 
 
 
